@@ -1,2 +1,2 @@
 # elbarquitodepapelfi
-Página sobre fotografía. Mayormente fotografía infantil.
+Página web sobre fotografía. Principalmente fotografía infantil.
